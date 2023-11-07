@@ -1,1 +1,1 @@
-# rsschool-cv
+https://roundedtoken.github.io/rsschool-cv/
